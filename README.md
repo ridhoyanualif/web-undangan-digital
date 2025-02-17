@@ -6,7 +6,7 @@
 
 > [Ayu Syafira Estianty](https://github.com/axcylenmaki)
 
-> [Dayina Ayu Wulandari](https:github.com/dayina-aw)
+> [Dayina Ayu Wulandari](https://github.com/dayina-aw)
 
 > [Devilla Al Sabrina Herlambang](https://github.com/devillavla)
 
