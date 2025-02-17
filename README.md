@@ -4,11 +4,11 @@
 ### Anggota :
 > [Adinda](https://github.com/ndaiii)
 
-> Ayu Syafira Estianty
+> [Ayu Syafira Estianty](https://github.com/axcylenmaki)
 
 > Dayina Ayu Wulandari
 
-> Devilla Al Sabrina Herlambang
+> [Devilla Al Sabrina Herlambang](https://github.com/devillavla)
 
 > [Friska Maysela](https://github.com/friska21624)
 
