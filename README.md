@@ -2,7 +2,7 @@
 > SMKN 71 Jakarta
 
 ### Anggota :
-> Adinda
+> [Adinda](https://github.com/ndaiii)
 
 > Ayu Syafira Estianty
 
@@ -10,18 +10,18 @@
 
 > Devilla Al Sabrina Herlambang
 
-> Friska Maysela
+> [Friska Maysela](https://github.com/friska21624)
 
 > Inayatul Kamila
 
 > Kayra Mutiara Pradita
 
-> Marsel Herlino
+> [Marsel Herlino](https://github.com/Sel-At-Works)
 
 > Muhammad Fauzan
 
 > Ninda Anggraeni
 
-> Rennard Adityatama
+> [Rennard Adityatama](https://github.com/rennardadityatama)
 
-> Ridho Yanualif Nugroho
+> [Ridho Yanualif Nugroho](https://github.com/ridhoyanualif)
