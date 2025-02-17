@@ -6,15 +6,15 @@
 
 > [Ayu Syafira Estianty](https://github.com/axcylenmaki)
 
-> Dayina Ayu Wulandari
+> [Dayina Ayu Wulandari](https:github.com/dayina-aw)
 
 > [Devilla Al Sabrina Herlambang](https://github.com/devillavla)
 
 > [Friska Maysela](https://github.com/friska21624)
 
-> Inayatul Kamila
+> [Inayatul Kamila](https://github.com/moxnster)
 
-> Kayra Mutiara Pradita
+> [Kayra Mutiara Pradita](https://github.com/rrubah)
 
 > [Marsel Herlino](https://github.com/Sel-At-Works)
 
