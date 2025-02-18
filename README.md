@@ -18,7 +18,7 @@
 
 > [Marsel Herlino](https://github.com/Sel-At-Works)
 
-> Muhammad Fauzan
+> [Muhammad Fauzan](https://github.com/fauzan150707)
 
 > [Ninda Anggraeni](https://github.com/ninda677)
 
