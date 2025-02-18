@@ -20,7 +20,7 @@
 
 > Muhammad Fauzan
 
-> Ninda Anggraeni
+> [Ninda Anggraeni](https://github.com/ninda677)
 
 > [Rennard Adityatama](https://github.com/rennardadityatama)
 
